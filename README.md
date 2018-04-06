@@ -1,2 +1,2 @@
-# 123Duo3.github.io
-这只是一个Hello wrold
+# 123哆3的辣鸡网站
+然而这只是一个Hello wrold
